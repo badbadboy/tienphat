@@ -1,0 +1,2 @@
+# tienphat
+Thi thoảng trong giấc ngủ nằm mơ những giấc mơ rất kì lạ. Có bao giờ bạn nghĩ rằng mình mơ thấy cháy nhà không? Thế mà giấc mơ này có rất nhiều người gặp phải không riêng mình bạn đâu nhé. Có thể nằm mơ thấy cháy nhà mình, hay mơ thấy cháy nhà người khác liệu giấc mơ này mang điềm báo gì? Hay mơ thấy cháy nhà đánh con gì? Ở bài viết này các chuyên gia phong thủy sẽ giúp bạn giải nghĩa giấc mơ khó hiểu này và để biết nằm mơ cháy nhà đánh con gì. https://xosotienphat.com/nam-mo-chay-nha-danh-con-gi/
